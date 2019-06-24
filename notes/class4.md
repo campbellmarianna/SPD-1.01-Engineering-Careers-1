@@ -10,9 +10,21 @@
 ## A few steps
 1. Analyze the position you are being interviewed for
 
-## Take the oddball question as an opportunity to  build your personal brand s
+## Take the oddball question as an opportunity to  build your personal brand.
 
 ## Ask Questions
 - Show you thought process
 
-## At the end of answerin
+## At the end of answering
+
+### No to
+- Talk poorly about others
+
+### Non-verbal Communication
+- Handshake
+- Eye Contacts
+- Attentiveness
+- Posture
+- Clear speech
+- Volumn
+- Personal space
